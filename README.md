@@ -1,1 +1,1 @@
-Odds and ends I wanedt to be able to refer to once in a while.
+Odds and ends I want to be able to refer to once in a while.
